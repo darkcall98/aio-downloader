@@ -7,6 +7,304 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 22:03
+---
+
+## VahidOOnLine — post 239571
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239571_1778524400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مونترال|کبک کانادا؛
+رالی خودرو و گردهمایی ایرانیان
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239570
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239570_1778524401.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+وب‌سایت اکسیوس به نقل از سه مقام آمریکایی گزارش داد دونالد ترامپ امروز با اعضای تیم امنیت ملی خود درباره گام‌های بعدی در جنگ با جمهوری اسلامی دیدار خواهد کرد.
+
+بر اساس این گزارش، ازسرگیری احتمالی اقدام نظامی علیه جمهوری اسلامی از جمله گزینه‌هایی است که در این نشست بررسی می‌شود.
+
+ترامپ پیش‌تر گفته بود قرار است با «ژنرال‌های ارشد» خود دیدار کند.
+
+به گزارش اکسیوس، جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، استیو ویتکاف، فرستاده ویژه کاخ سفید، مارکو روبیو، وزیر خارجه، و پیت هگست، وزیر دفاع آمریکا نیز در این نشست حضور خواهند داشت.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239569
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239569_1778524402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک روز پس از آن که دونالد ترامپ با پاسخ جمهوری اسلامی به پیشنهاد واشینگتن مخالفت کرد، ارتش آمریکا اعلام کرد که یک زیردریایی از کلاس اوهایو که مجهز به موشک‌های بالستیک هسته‌ای است، یک‌شنبه وارد جبل‌الطارق شد.
+
+ناوگان ششم نیروی دریایی ایالات متحده در بیانیه‌ای نوشت: «زیردریایی‌های موشک بالستیک کلاس اوهایو، سکوهای پرتاب غیرقابل شناسایی برای موشک‌های بالستیک پرتاب‌شونده از زیردریایی هستند و برای ایالات متحده امن‌ترین و پایدارترین بخش از سه‌گانه هسته‌ای را فراهم می‌کنند.»
+
+جبل‌الطارق، قلمرو بریتانیا و مشرف به تنگه‌ای است که دریای مدیترانه را به اقیانوس اطلس متصل می‌کند.
+
+پنتاگون نام این زیردریایی را که یکی از محرمانه‌ترین سلاح‌های ارتش آمریکا است فاش نکرد.
+
+به طور کلی، محل استقرار زیردریایی‌های هسته‌ای آمریکا به شدت طبقه‌بندی‌شده و محرمانه است.
+
+ترامپ دوشنبه به خبرنگاران گفت که آتش‌بس آمریکا با ایران در وضعیت بحرانی قرار دارد و آن را «به‌طرز باورنکردنی ضعیف» توصیف کرد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239568
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239568_1778524402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️امین الناصر، رئیس شرکت نفت عربستان سعودی «آرامکو»، دوشنبه ۲۱ اردیبهشت‌ماه، اعلام کرد شوک عرضه انرژی که از سه‌ماهه نخست آغاز شده، بزرگ‌ترین شوکی است که جهان تاکنون تجربه کرده است. او هشدار داد حتی اگر تنگه هرمز امروز بازگشایی شود، بازارهای جهانی برای بازگشت به وضعیت عادی به چند ماه زمان نیاز خواهند داشت.
+
+الناصر گفت اگر اختلال در تنگه هرمز چند هفته دیگر ادامه پیدا کند، ممکن است بازار انرژی پیش از سال ۲۰۲۷ به شرایط عادی بازنگردد. او افزود بسته ماندن این آبراه حیاتی باعث می‌شود بازار جهانی هر هفته ۱۰۰ میلیون بشکه نفت از دست بدهد.
+
+رئیس آرامکو همچنین اعلام کرد تردد کشتی‌ها در تنگه هرمز به‌شدت کاهش یافته و از حدود ۷۰ کشتی در روز به تنها ۲ تا ۵ کشتی رسیده است؛ موضوعی که به گفته او شدت اختلال در زنجیره تامین جهانی را نشان می‌دهد.
+
+الناصر تاکید کرد آرامکو در صورت نیاز می‌تواند ظرف سه هفته تولید خود را به حداکثر ظرفیت پایدار ۱۲ میلیون بشکه در روز برساند. او گفت این شرکت در سه‌ماهه نخست روزانه ۱۲.۶ میلیون بشکه معادل نفت تولید کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 8924
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_8924_1778524403.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️📡 هواپیمای RC-135V Rivet Joint هواپیمای شناسایی و شنود الکترونیکی (جمع‌آوری اطلاعات سیگنالی و ارتباطی).(شماره 64-14848 از پایگاه سودا بی یونان) بر فراز عربستان سعودی مشاهده شد؛ در حال بازگشت از خلیج فارس.
+(تداخل شدید GPS در منطقه میان ریاض، امارات متحده عربی و قطر)
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341552
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341552_1778524403.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Hungary's new health minister, Zsolt Hegedus, going viral for recreating his election night celebration in a move that may rival the Trump Dance.
+
+Hegedus’ original on-stage dance celebration came after his party’s election victory last month to end Viktor Orbán’s long rule in the country.
+
+Hegedus showed off his moves once more after Peter Magyar was sworn in as the country’s new prime minister over the weekend.
+</div>
+
+## pm_afshaa — post 90586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف:نیروهای مسلح ما آماده پاسخ به هر تجاوزی هستند. استراتژی نادرست و تصمیمات اشتباه همیشه به نتایج نادرست منجر می‌شوند. ما برای هر احتمالی آماده‌ایم - آنها شگفت‌زده خواهند شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90585
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاخ سفید:ترامپ همه گزینه‌ها را روی میز گذاشته
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه‌های اسرائیلی: گفتگوهایی با آمریکا درباره از سرگیری مبارزه با ایران در جریان است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑🎥 «یک ملت در گروگان»؛ اعتراض ایرانیان استکهلم علیه قطع اینترنت و موج اعدام‌ها
+
+گزارش: بهنام روغنی
+
+#شاهزاده_رضا_پهلوی #استکهلم
+@DEJradio
+</div>
+
+## mamlekate — post 103502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الو کشتی نفتکش شرکت ملی نفتکش رو دیشب نزدیک جاسک زدن. کشتی کلاس S هست. اسم اولیه و قدیمی اش سنندج بود. بعد از تحریم ها بارها اسمش عوض شد. خدمه سالم هستن.
+
+@mamlekate مملکته
+</div>
+
+## IranIntlTV — post 336694
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336694_1778524405.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهیر شهیدثالث، روزنامه‌نگار و تحلیل‌گر سیاسی، درباره طرح پیشنهادی تهران برای توافق با واشینگتن گفت: «چه دونالد ترامپ در کاخ سفید باشد و چه فردی دیگر، مساله اصلی درخواست جمهوری اسلامی برای به‌رسمیت شناختن حاکمیتش بر تنگه هرمز است.» او تاکید کرد: «هیچ رییس‌جمهوری در آمریکا زیر بار چنین درخواستی نخواهد رفت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336693
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336693_1778524407.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک روز پس از آن که دونالد ترامپ با پاسخ جمهوری اسلامی به پیشنهاد واشینگتن مخالفت کرد، ارتش آمریکا اعلام کرد که یک زیردریایی از کلاس اوهایو که مجهز به موشک‌های بالستیک هسته‌ای است، یک‌شنبه وارد جبل‌الطارق شد.
+
+ناوگان ششم نیروی دریایی ایالات متحده در بیانیه‌ای نوشت: «زیردریایی‌های موشک بالستیک کلاس اوهایو، سکوهای پرتاب غیرقابل شناسایی برای موشک‌های بالستیک پرتاب‌شونده از زیردریایی هستند و برای ایالات متحده امن‌ترین و پایدارترین بخش از سه‌گانه هسته‌ای را فراهم می‌کنند.»
+
+جبل‌الطارق، قلمرو بریتانیا و مشرف به تنگه‌ای است که دریای مدیترانه را به اقیانوس اطلس متصل می‌کند.
+
+پنتاگون نام این زیردریایی را که یکی از محرمانه‌ترین سلاح‌های ارتش آمریکا است فاش نکرد.
+
+به طور کلی، محل استقرار زیردریایی‌های هسته‌ای آمریکا به شدت طبقه‌بندی‌شده و محرمانه است.
+
+ترامپ دوشنبه به خبرنگاران گفت که آتش‌بس آمریکا با ایران در وضعیت بحرانی قرار دارد و آن را «به‌طرز باورنکردنی ضعیف» توصیف کرد.
+
+https://iranintl.com/202605111968
+</div>
+
+## ManotoTV — post 105320
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105320_1778524407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مونترال|کبک کانادا؛
+رالی خودرو و گردهمایی ایرانیان
+</div>
+
+## ManotoTV — post 105319
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105319_1778524409.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+وب‌سایت اکسیوس به نقل از سه مقام آمریکایی گزارش داد دونالد ترامپ امروز با اعضای تیم امنیت ملی خود درباره گام‌های بعدی در جنگ با جمهوری اسلامی دیدار خواهد کرد.
+
+بر اساس این گزارش، ازسرگیری احتمالی اقدام نظامی علیه جمهوری اسلامی از جمله گزینه‌هایی است که در این نشست بررسی می‌شود.
+
+ترامپ پیش‌تر گفته بود قرار است با «ژنرال‌های ارشد» خود دیدار کند.
+
+به گزارش اکسیوس، جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، استیو ویتکاف، فرستاده ویژه کاخ سفید، مارکو روبیو، وزیر خارجه، و پیت هگست، وزیر دفاع آمریکا نیز در این نشست حضور خواهند داشت.
+</div>
+
+## FarsiVOA — post 217465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فشار آمریکا برای خلع سلاح گروه‌های شبە نظامی عراقی از یک سو و مانع‌تراشی‌های رژیم جمهوری اسلامی از سوی دیگر، تشکیل دولت عراق را پیچیده‌تر کردە است.
+</div>
+
+## Persian_Trend_Official — post 13940
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13940_1778524410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمد باقر قالیباف
+
+‏💢نیروهای مسلح ما آمادهٔ پاسخگویی درس‌آموز به هر تجاوزی هستند؛ استراتژی اشتباه و تصمیم‌های اشتباه، همیشه نتیجهٔ اشتباه خواهد داشت، همهٔ دنیا قبلاً این را فهمیده‌اند.
+‏ما برای تمام گزینه‌ها آماده هستیم؛ شگفت‌زده خواهند شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## manototv — post 105320
+
+<div align="center">
+  <a href="telegram/content/manototv_105320_1778524410.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مونترال|کبک کانادا؛
+رالی خودرو و گردهمایی ایرانیان
+</div>
+
+## manototv — post 105319
+
+<div align="center">
+  <a href="telegram/content/manototv_105319_1778524412.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+وب‌سایت اکسیوس به نقل از سه مقام آمریکایی گزارش داد دونالد ترامپ امروز با اعضای تیم امنیت ملی خود درباره گام‌های بعدی در جنگ با جمهوری اسلامی دیدار خواهد کرد.
+
+بر اساس این گزارش، ازسرگیری احتمالی اقدام نظامی علیه جمهوری اسلامی از جمله گزینه‌هایی است که در این نشست بررسی می‌شود.
+
+ترامپ پیش‌تر گفته بود قرار است با «ژنرال‌های ارشد» خود دیدار کند.
+
+به گزارش اکسیوس، جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، استیو ویتکاف، فرستاده ویژه کاخ سفید، مارکو روبیو، وزیر خارجه، و پیت هگست، وزیر دفاع آمریکا نیز در این نشست حضور خواهند داشت.
+</div>
+
+## alonews — post 119359
+
+<div align="center">
+  <a href="telegram/content/alonews_119359_1778524413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قالیباف: نیروهای مسلح ما آماده‌اند تا پاسخ شایسته‌ای به هرگونه تجاوز بدهند؛ استراتژی اشتباه و تصمیمات نادرست همیشه به نتایج اشتباه منجر می‌شوند— کل جهان این را فهمیده است.
+
+
+🔴ما برای همه گزینه‌ها آماده‌ایم؛ آنها شگفت‌زده خواهند شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 119358
+
+<div align="center">
+  <a href="telegram/content/alonews_119358_1778524413.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروی دریایی سلطنتی بریتانیا: ناوشکن اچ‌ام‌اس دراگون (HMS Dragon) از کلاس تایپ ۴۵ماموریت خود را از ماموریت‌های دفاعی در نزدیکی قبرس به ماموریتی در تنگه هرمز تغییر خواهد داد
+
+
+🔴 چرا که شناورهای رزمی اروپایی، از جمله ناو هواپیمابر تهاجمی شارل دوگل فرانسه، همچنان در حال تجمع در منطقه محلی هستند تا برای یک ماموریت دریایی اروپایی با هدف تامین امنیت عبور و مرور دریایی از طریق تنگه مورد مناقشه، آماده شوند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 21:53
 ---
 
